@@ -1,1 +1,1 @@
-Learning hot to deal with all this abracadabra)
+Learning how to deal with all this abracadabra)
